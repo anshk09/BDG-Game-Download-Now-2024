@@ -2,9 +2,9 @@
 
 As the gaming industry continues to evolve, players are constantly on the lookout for new and exciting games to explore. One game that has garnered attention is "BDG," a popular title that has captured the interest of many gamers.
 
-<h3><a href="https://t.me/recon_dart_money">✅GET BDG GAME NOW✅</a></h3>
+<h3><a href="https://t.me/recon_dart_money" target="_blank">✅GET BDG GAME NOW✅</a></h3>
 
-<h3><a href="https://t.me/recon_dart_money">✅GET BDG GAME NOW✅</a></h3>
+<h3><a href="https://t.me/recon_dart_money" target="_blank">✅GET BDG GAME NOW✅</a></h3>
 
 In 2024, enthusiasts are eager to find ways to download the BDG game for free. This article provides a comprehensive guide on how to do so, while also emphasizing the importance of following legal and ethical practices.
 
